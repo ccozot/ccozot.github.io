@@ -1,2 +1,0 @@
-# ccozot.github.io
-STP
